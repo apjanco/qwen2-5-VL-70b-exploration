@@ -1,0 +1,13 @@
+Gracia que quise hacerle a mi hermana Doña Ana María y dicha negra, y sus hijos pertenecen a mis sobrinos hijos de la cristiana mi hermana de los cuales le tengo dado a mi sobrino José Antonio un mulato Francisco mando que este se le dé y entregue a mi sobrino Nicolás, y en lugar de aquel se le dé y entregue a José Antonio el mulato Feliciano, y que del valor de la Rosal se partan por iguales partes dichos mis sobrinos.
+
+19° Y declaro que del quinto de mis vienes se den cien pesos para el completo del marco ofrecido de la santísima Trinidad de la Iglesia de San Francisco del pueblo de Quibdó, a mayor abundamiento de lo que tiene entregado el Doctor.
+
+Y mando se entregue sin la menor dilación.
+
+20° Y declaro que se le de igualmente del quinto de mis vienes a José María Hurtado y su mujer sien pesos castellanos por haber tenido pactado sacarles de pila la criatura de que se halla embarazada en cargando a Don Silvestre Mecías o a mi sobrina Doña Carmela, carguen por mí en grado de mi fallecimiento declararlo para que conste.
+
+21° Y declaro que así mismo de dicho quinto se le entreguen a Don Bartolomé Polo mi favorecedor en mi cuidad por el esmero y voluntad con que ha manejado mi asunto en mi B. H. deidad ochenta pesos plata declarolo así para que conste.
+
+58° 22° Y declaro y es mi voluntad que con permiso de mi única heredera a quien suplico se le dé, la casa y llano del corral con todos sus ganados a mi sobrina Carmela, y la bodeguita de arroz desde el San Juan con todas sus siembras, y dos reces, a la mulata encarnación por haberme asistido con la mayor fidelidad para que los goce con la bendición de Dios y la mía, advirtiendo que entre las reces, que dejo en dicho corral para dicha mi sobrina, hay dos otros que le ha dado su padrino declarolo para que conste.
+
+23° Y declaro que en mi real de minas del lonbricero se halla un negro Basilio y su mujer con sus hijos pertenecientes a Don Melchor de Varona, quien por hacerme bien me lo había dado para que me arreglasen y me gobernasen la mina y la quadrilla, y yo le había puesto en lugar de ellos al negro Silvestre con su mujer e hijos chicos siendo do yo como mutil al negro viejo tomacito mando se le vuelva dicho Basilio con su mujer e hijos con los jornales que le corresponden de todo el tiempo que dicho Silvestre handubo fugitivo, y en mi poder, con el pretensión de la instancia que seguía por su mujer declarolo para que
