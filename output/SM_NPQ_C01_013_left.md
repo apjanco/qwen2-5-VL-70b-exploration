@@ -1,0 +1,11 @@
+pleito ni contradicción alguna, y si se le moviere lo seguirá y fenecerá a su costa hasta desarle en quieta y pacífica posesión; y de no poderlo hacer le volverá los trescientos pesos de plata recibidos y mas valor que con el bienio haya adquirido dicho esclavo, costos, y costos daños y perjuicios que se le irrogaren solo con su simple juramento en que se le releva de prueba aunque por derecho se requiriera y esto venga se lo hace con todos sus vicios tachas y defectos enfermedades públicos y secretas A cuya seguridad cumplimiento y firmeza se obliga el otorgante conforme a derecho y de estar satisfecho la real alcavala se agrega volata y siendo do le leída al referido Nicolas Roxas esta escritura a su favor otorgada dijo: que la aceptaba y acepto [...]. Timonio con lo de con otorgan y firman conmigo gobernador y testigos por el im pedido referido.
+
+Carlos de Ciaurriz
+
+Juan Davila
+
+Nicolas de Roxas
+
+LIBERTAD
+
+374 En el pueblo de San Francisco de Quibdo capital de la provincia del citara a los veinte y tres días del mes de abril de mil ochocientos ocho años: Ante mi Don Carlos de Ciaurriz capitán de infantería gobernador político y militar de estas provincias, y de los testigos con quienes actuo poi el impedimento del único escribano pareció presente Manuel de Salazar vecino de esta provincia a quien certifico conosco y dijo: Que con fecha diez y ocho de febrero pasado otorgo escritura de libertad a favor de Jose Antonio su mu- to esclavo con la precisa condición de que le hubiese acompañar hasta después de sus días, y como por ciertos disgustos que han ocurrido, no ha querido acompañarle mas dicho mulato, se han convenido en darle este a aquel en conmuta- ción del tiempo que debe acompañarle, la cantidad de ciento cinquenta patacones que confiesa el citado salazar haber recibido de manos de Agustin Daza los cientos, y el resto lo acredita con dos meses de plazo a dicho mulato, en cuya [...]. ridad desde hoy para adelante se desiste el citado Salazar de todo derecho que pudiera tener al cita- do Jose Antonio [...]. a su servicio, dándole toda la
