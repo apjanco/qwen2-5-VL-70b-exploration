@@ -1,0 +1,11 @@
+Angueta, mi esposo me entregaron tres Novilloncitas, dos camisas, dos enaguas de bretaña, f... faldado de Sarga llanito, todo bastante usado, l... mas una palita de cobre roto, y una plomada de Atarraya, que todo Justipreciado extraordinariamente qualdo lo persobi, se gradro en quarenta y nuebe peso castellanos declaro así para que conste
+
+6° Yten declaro que en el segundo matrimonio contrahido con Ramon Martinez tubimos y procreamos por nuestros legítimos hijos a Justa, Juana, Margarita, Laureano, y Visenta de los que les han fallecido dos, y solo sobreviven las tres mujeres a las quales declaro portales mis hijas legítimas
+
+7° Yten declaro que al tiempo y quando contrahimos este matrimonio con el citado Ramon Martinez introdujo de capital este la cantidad de dos mil pesos de plata en esta forma, dos negritos medianos, un fondo de cobre, un platerar citado en las tierras propias del dicho Martinez, y la casa, habitación del enunciado. Y yo de mi parte no introduje bienes algunos, y solo el cortó ajuar de mi herencia, pues aunque en mi poder existía los cortos bienes que dejó mi primer marido no se dexen imputar a mi pertenencia, ni menos de los hijos mediante a que este citado mi marido satisfizo las deudas del primero por lo qual devengarse los que sean a la masa del capital que introdujo el citado Ramon Martinez: Y si hubiere algún sobrante quedara a beneficio de mis hijos de mi primer marido Agustín Angueta, declarolo así para que conste
+
+8° Yten declaro que por fallecimiento de mi segundo marido Ramon Martinez se practicaron las diligencias anexas y concernientes a dicha mortuoria Judiciales, y aprobadas por Don Pablo Mauro de Gozman, teniente de gobernador de esta provincia por el año de 1770, en cuya (...) y particion de los bienes que (...) estefinado, y hechas las adjudicaciones a los (...) segun matrimonio, a cuya causa me remito
+
+9° Yt declaro que las dependencias que quedaron por (...) y muerte del citado mi marido todas se (...) sin que ninguno se hubiese perdido; y lo declaro así para que conste
+
+Yt declaro que en el tercer matrimonio contrahido con Don Francisco de Lorza, este no introdujo capital alguno, y por mi parte mantenía en ser todos los bienes que correspondían a mis hijos legítimos mios, y de Ramon Martinez pues

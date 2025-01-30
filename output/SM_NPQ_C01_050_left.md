@@ -1,0 +1,13 @@
+LIBERTAD - ESCLAVO (9 Nov 1808)
+
+150f Rufino e Ysabel, palacio por el precio y cantidad el primero en Doscientos y la segunda en ciento y cincuenta pesos Castellanos en que fueron Justipreciados. Los cuales se me han otorgado a mi el testigo actue rio Don Bonifacio Salazar los mismos que pase al señor oficial Remi de esta dicha provincia como consta de la diligencia puesta. Y desde hoy en adelante se desapodera, desiste, quita, y aparta a nombre de su administrador del Derecho de acción posesión, propiedad, Dominio, y señorío que a dichos esclavos tenía adquirido, y todo lo cede renuncia y traspasa en su hecho y causa propia como se requiere y es necesario para que trate, y contrate compre, y venda, parezca en Juicio, otorgue escrituras y testamentos memoriales cobdiellos, y poderes y hagan todo quanto una persona libre, y no sujeta a servidumbre podrían hacer haciendo en todo de su libre, y expontanea voluntad, y se obliga el don gante a que en todos tiempos les será cierta, segura, firme, y valde sa esta escritura de libertad, lo que por sí, ni por los interesados de su administración la reclamaran, ni contradirán en manera alguna, y co so que lo intenten por el mismo hecho quiere, no sean hoydos en Juicio ni fuera del, como no lo es quien intenta acción o derecho que no le parte nece, y se ha visto haber aprobado, y revalidado esta escritura de liber tad unadiendole fuerza a fuerza y contrato a contrato con todas las 150v clausulas, vinculos, y solemnidades que para su validación se requieren. A cuya seguridad cumplimiento y firmeza se obliga a nombre del ad ministrador conforme a Derecho. Y estando presente el citado *Narciso Palacio a quien así mismo conosco haviendo hoydo este nor y forma de esta escritura de libertad en favor de sus pri mos hermanos otorgada dijo: Que la aceptava y acepto. Y en su testimonio así lo dicen y otorgan firma el que sabe y por el que dijo no saver escribir lo hace a su ruego Domingo Mar tinez con migo dicho temente y testigos por el impedimento referido.
+
+Jose Dionisio de Villar
+Testigo Bonifacio Salazar a ruego de los aceptantes
+
+Juan Antonio Ramirez
+Domingo Martinez
+
+LIBERTAD - ESCLAVO
+
+152r En el pueblo de San Francisco de Quidó capital de la provincia del citara a onze dias del mes de noviembre de mil ochocientos ocho: Ante mi Don Jose Dionisio de Villar teniente gobernador y corre gidor de naturales de este dicho pueblo y de los testigos con quienes actuo por impedimento del único escribano, parecio *negro liberto
