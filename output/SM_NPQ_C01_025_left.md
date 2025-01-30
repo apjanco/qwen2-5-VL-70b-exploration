@@ -1,0 +1,12 @@
+Los cuatro años en ella declarados para repetir el engaño de lo que se compre, venda, o permuta, por la mitad mas o menos de su lúctimo precio. Y desde hoy en adelante se decliste, quita y aparta del derecho de patronato, señorío, y posesión que a dicha esclava tenía adquirido, y todo con los acciones reales, personales, y demás que le competen, lo cede, renuncia, y traslada en el comprador, y quien la suya tenga, para que sea su esclava sujeta a servidumbre, y disponga de él a su arbitrio mediante que lo adquirió con legitimidad, obligándose a la acción seguridad y sacramento de esta venta, y que le será cierta, segura, firme y valedera, y sobre ella no se le moverá, pleito ni contradicción alguna; y si se le moviere, lo segura y fenesera a su costa hasta dejarle en quieto y pacífica posesión; y de no poderlo hacer le devolverá el importe de esta venta, y mas valor, que con el tiempo haya adquirido el referido negro, costos y costas, daños y perjuicios, que se le irrogaren, solo con el simple juicio en que le pleva de otra prueba aunque por derecho se requiera; y esta venta se le hace con todos los vicios, defectos, enfermedades públicas y secretas. A cuya seguridad cumplimiento y firmeza se obliga con su persona y bienes, habidos y por haber conforme a derecho con la general que prohíbe toda renunciación. Y de estar satisfecha la Real Alcavala se agregue voluta original. En cuyo testimonio, y estando presente el dicho Juan de Mena, habiendo oído esta escritura de venta a su favor otorgada dijo que la aceptaba y aceptó. En cuya virtud así lo dicen otorgan, firma el que sabe, y por el que dijo no saber, lo hace a su ruego Don Jose Goez, conmigo dicho gobernador, y testigos con quienes actuo por el impedimento insinuado.
+
+Carlos de Ciaorniz
+Tomas polo
+por Juan de Mena.
+testigo Bonifacio Salazar
+Joseph Gaez
+testigo Vicente Olaechea
+
+67r TESTAMENTO - PODER
+
+En el pueblo de San Francisco de Quibdo capital de la provincia del Citará a veinte y un días del mes de Junio de mil ochocientos ocho: Ante mí Don Jose Dionisio de Villar teniente de gobernador de esta provincia y testigos pareció presente en la casa de su morada Marcos Hurtado oriundo de esta dicha provincia hijo legítimo y de legítimo matrimonio de Antonio Hurtado y

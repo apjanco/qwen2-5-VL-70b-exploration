@@ -1,0 +1,9 @@
+y general administración; y para ello otorga su testamento a otra disposición y evacuar enteramente todo lo que disponga ordene y declare en virtud de este poder le profoga el término que el derecho prefiere por el que necesite sin limitación solo reserva en sí lo siguiente Declara que en el remanente de todos sus bienes muebles raíces derechos y acciones motituye por su universal heredera a María Barbara del pino su legítima madre para que los haya y goce con la bendición de Dios y la suya.
+
+Y por el presente revoca y anula todos los testamentos poderes para testar y demás disposiciones testamentarias que antes de ahora ha otorgado por escrito de palabra y en otra forma para que ninguna valga ni haga fe judicial ni extra-judicialmente excepto este poder y testamento u otra disposición que en su virtud se ordene que quiere manda se tenga y cumplan por su última deliberada voluntad o en la mejor forma que haya lugar en derecho así lo otorga y firma a quien certifico conosco siendo testigos Don Agustín Romero Don Miguel Buch Don Vicente Olachea Jose Joaquin paz de la es-pada y Nicolas de Roxas todos vecinos de esta prenotada 68v provincia del citara.
+
+Jose Dionisio de villar Marcos Hurtado Testigo Agustin Romero Testigo Miguel Buch Testigo Vicente olachea Jose Joaquin Lazode la espada Testigo Nicolas de Roxas
+
+derechos de este poder con papel suplido 952 notas quehacen 28 pesos de plata.
+
+69v TESTAMENTO En el nombre de Dios todo poderoso Amen. Sepan todos quantos esta memoria testamentaria vieren como yo Juan Bautista Davila natural del sitio de San Nicolas de Barranquilla y vecino de esta provincia hijo natural de viviana Santiago y Davila natu-ral y vecina del referido sitio hallandome enfermo del cuer-po pero en mi entero y sano Juicio memoria, entendimiento natural tal qual Dios nuestro señor ha sido servido darme creyendo como firmisimamente creo en el Alto y sacro santo 70r misterio de la Santísima Trinidad padre hijo y espíritu santo
