@@ -1,0 +1,11 @@
+En el simple juramento de la parte interesada y esta escritura sin mas prueba de que se le releva, siendo claridad que esta venta se ha celebrado con todos los vicios tachas defectos enfermedades públicas y secretas que tenga el dicho esclavo Juan de Dios y de que es sabedor el dicho comprador como que lo conoce. A cuya seguridad cumplimiento y firmeza el señor otorgante obliga la persona del vendedor Ramon de Cordoba y sus bienes presentes y futuros para que los señores Jueces de su majestad a ello le obliguen compelan y apremien por todo rigor de derecho.
+
+Y como por contrato f. pasado:
+
+Sobre que renuncia las leyes fueros y derechos de sus favor con la conveniente nueva y general del derecho en forma. Y de estar satisfecha la Real Alcavala se entrega voluta original que dice así - En cuyo testimonio con aceptación del comprador así lo dicen otorgan y firman siendo testigos Don Jose Baldrian, Don Miguel Buch y Francisco de Paz vecinos Jose Maria Valencia Francisco Xavier de Conto Ante mi Vicente Olachea escribano publico
+
+VENTA - ESCLAVO
+
+En el pueblo de San Francisco de Quidbo capital de la provincia del citara a veinte y tres de enero de mil ochocientos diez: Ante mi el escribano y testigos que se nombraran pareció presente Don Manuel Alberto Guerrero presbítero y cura propio del pueblo de Lloro en esta dicha provincia a quien doy fe conosco y dixo: Que vende y da en venta Real y perpetua enajenación desde ahora y para siempre Jamás a Antonia Ledesma de este vecindario un negro llamado Joaquin que hubo y compra de los bienes de Don Tomas Polo ya difunto que sea para la dicha en herederos y sucesores; y se lo vende por libre de otra venta con so empeño ni hipoteca tácita ni expresa pero con todos sus vicios tachas enfermedades y defectos públicos y secretos por el precio y cantidad de quatrocientos pesos de plata f. recibidos de mano de f.
+
+Y contento sobre que por no ser de presente la entrega para que yo dicho escribano de fe de ella, renuncio alegar la excepción de la non numerata pecunia leyes de la entrega recibida y mas del caso. Y confiesa que el justo precio y ver-

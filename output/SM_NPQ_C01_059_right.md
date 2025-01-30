@@ -1,0 +1,1 @@
+The image shows a blank page from a grid-lined notebook. There is no visible text on the page. The grid lines are faint, and there are some faint pencil marks or smudges, but they do not form any discernible text.

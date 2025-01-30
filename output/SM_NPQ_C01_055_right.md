@@ -1,0 +1,10 @@
+32r Don Miguel Buch, ha satisfecho en esta contaduria a nombre de Don Jose Joaquin Alarcon dos pesos de plata, por la Alcavala al 2 por ciento deducidos de ciento en que ha vendido al señor teniente de gobernador de esta provincia Don Jose Dionisio Villar un solar lindante a la plaza de este pueblo.
+
+34r Quito Abril 2 de 1808
+Ha satisfecho en esta contaduria es testigo actuario Don Bonifacio Salazar a nombre de Doña Josefa Patiño seis pesos de plata por la Alcavala al 2 por ciento deducidos de trescientos en que ha vendido con licencia, y expreso consentimiento de su esposo Don Angel Perez a Rosalia Ortega una negra llamada Maria Manuela. Jose Maria Valencia.
+
+36r Nicolas de Roxas ha satisfecho en esta contaduria seis pesos de plata por la Alcavala al 2 por ciento deducidos de trescientos en que ha comprado a Joan Baptista Davila un negro su esclavo llamado Manuel Sabalo. Quito y Abril 22 de 1808. Jose Maria Valencia
+
+39r Don Francisco Xavier de Conto ha satisfecho en esta contaduria a nombre de Doña Ana Maria de la Cuesta Veinte y cinco pesos uno y medio reales de plata por la Alcavala al 2 por ciento deducidos de mil doscientos y sesenta en que tiene vendidos a Josefa Beserra cinco piezas de esclavos nombrados, Julian, Brigida su mujer, Lucia, Miguel y Gregoria sus hijos. Quito Abril 27 de 1808 Jose Maria Valencia.
+
+41r Digo yo Doña Ana Maria de la Cuesta, que en esta fecha he devuelto en su entera libertad, y ahorro, a una negra mi esclava, nombrada Tomasa de la Cuesta, por la cantidad de cien pesos Castellanos, que me ha satisfecho Don Angel Perez, y estoy presta a otorgar la correspondiente escritura luego que sea recomendada por el dicho Don Angel de estar satisfecho de los expresados cien pesos, que le ha suplido a dicha mi negra: A todo lo qual me obligo por todo rigor de derecho, y via executiva renunciando todas las leyes de mi favor y para que conste lo firmo en chiquinquirá a diez y ocho dias del mes de Noviembre de setecientos noventa y nueve Doña Ana Maria de la Cuesta.

@@ -1,0 +1,11 @@
+quedo dicho esclava costos y costas danos y perouicios que se le irrogasen solo con ssimple Juramento en que se le releva de otra prueba aunque por derecho se requiera, y esta venta se la hace con todos los vicios tachas y defectos, enfermedades pu- blicas y secretas Vº A cuya seguridad complimiento y firmeza se obliga la otorgante conforme a derecho. Y de estar satisfecha la real Alcavala se agrega voluta original. Y siendole leida al referido Nicolas de Roxas esta escritura de venta en su favor otorgada dijo: Que la aceptava y acepto: Y en so testimonio asi lo dicen otorgan y firman con migo dicho teniente y testigos por el impedimento referido. En este estado es de advertir que otorgada esta escritura en cabeza y a favor de Antonia Mosquera mujer legitima de Nicolas de Roxas y la acepta en su nombre Don Agustin Romero lo que certifico yo el dicho teniente con los testigo de actuacion.
+
+Jose Dionisio de Villar Maria de Agora testigo Bonifacio Salazar Arruego de Antonia Mosquera Agustin Romero
+
+BOLETAS ALCAYALA
+
+12r Don Tomas Polo ha satisfecho en esta contaduria de mi cargo veinte y cinco pesos tres y medio reales de plata, por dere- cho de Alcayala al 2 por ciento deducidos de mil doscientos sesenta y dos pesos en que ha vendido a Maria Antonia de Cordo- va, y sus dos hijos, Santiago y Melchor, la quebrada de yndiour- du con quatro cortes ent... flados, una casa nueva en dicha quebra- da, qualio canesas de ganado, y una esclaba llamada f......f y en dicha quebrada queda exceptuado de esta venta el corte, y entable nombrado el Arenal. Quibdo y Marzo 7 de 1808
+
+14r Ha satisfecho el testigo actuario Don Bonifacio Salazar a nombre de Agustin Daza siete pesos de plata por el derecho de Alcayala al 2 por ciento. deducidos de trescientos y cinquenta en que ha vendido a Petrona Ferla, un negrito llamado Valentim. Quibdo 3 de Marzo de 1808. Jose Maria Valentin
+
+18r Ha satisfecho en esta contaduria de mi cargo once pesos cinco reales de plata por derecho de Alcayala al 2 por ciento deduci- dos de quinientos ochenta en que ha vendido a Don Melchor ve- tancur un negro llamado pedro, y su hija nombrada Olaya. Quib- do y Marzo 14 de 1808. Jose Maria Valencia

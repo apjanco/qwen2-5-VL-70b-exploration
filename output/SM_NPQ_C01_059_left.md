@@ -1,0 +1,11 @@
+PODER VENTA-ESCLAVO
+
+En el pueblo de San Francisco de Quibdó capital de la provincia del Citará a quince de enero de mil ochocientos diez: Ante mí el escribano y testigos que se nombraran pareció presente Don Francisco Xavier de Conto vecino minero de ella y Albacea tes-tamentario fideicomisario de Don Jayme Ysern a quien doy fe conosco y dixo: Que da su poder cumplido el que de derecho se requiere y es necesario para valer a Manuel María Cordero de la propia vecindad y próximo para seguir a la plaza de Cartagena y para que en su nombre pueda vender y venda arreglado a la instrucción que por separado le entrega un esclavo nombrado José Canuto de la testamentaria del cita-do Don Jayme, a Don Juan Ferrer vecino y comercio de dicha plaza, en cuyo poder se halla el citado esclavo, otorgando la correspondiente escritura de propiedad a favor del comprador con todas las clausulas, vinculos y firmesas para su validación, con la de exacción y saneamiento en caso de la incertidumbre. Que para lo dicho se insidente y dependiente se da el presente con libre franca y general administración facultad de enjuiciar Juros y substituir en una o mas personas que a todos guardando sus ordenes e instrucciones. Se releva de costas en debida forma. A cuya seguridad cumplimiento y firmeza se obliga los bienes de last.
+
+Fue re reun-cion de leyes en derecho necesarias, y clausula quaranti-gia de dar por expresa y declarada para que le perjudique, con la de su domicilio y vecindad y general del derecho en forma. En cuyo testimonio así lo dice otorga y firma siendo testigos Don Miguel Buch Don Luis Herrera y Don Santiago de la Torre vecinos
+
+Francisco Xavier de la Cuesta Ante mi Vicente Olavechea escribano Publico
+
+VENTA - ESCLAVO
+
+En el pueblo de San Francisco de Quibdó capital de la provin-cia del Citará a diez y nueve de enero de mil ochocientos diez Ante mí el escribano y testigos que se nombraron pa-recio presente el señor oficial Real de ella Don Jose Maria Valencia a quien doy fe conosco y dixo: Que como en-
