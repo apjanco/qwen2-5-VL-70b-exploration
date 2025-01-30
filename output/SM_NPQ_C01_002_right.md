@@ -1,0 +1,1 @@
+The image provided is of a blank page with no visible text. Therefore, there is no text to extract.

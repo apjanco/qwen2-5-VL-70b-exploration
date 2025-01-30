@@ -1,0 +1,9 @@
+Venta - esclavo
+
+En el pueblo de San Francisco de Quibdó capital de la provincia de Chocó a siete de marzo de mil ochocientos ocho ante mí don Carlos de Siuriz capitán de infantería gobernador político y militar de estos proximidades y de los testigos con quienes actuo sin impedimentos único Esño parecio Agustín Daza vecino de esta provincia a quien certifico conozco y vende y da en real y perpetua enajenación desde ahora y para siempre jamás persona ferla de este mismo vecindario que sea para la dicha y sus herederos y que es a saber un negro su propio esclavo llamado Valentín el que se vende por libre de otro yento censo, empeño ni hipoteca toca ni expresa y por tal lo asegura en cantidad de trescientos y cincuenta pesos de plata que confiesa haber recibido los ciento ochenta al contado, y el resto de ciento setenta a satisfacerlos dentro del término y plazo de cinco meses en la especie de oro en polvo y por no ser de presente el 1/3 de la cantidad referida para que yo el gobernador lo certifique, lo confiesa y renuncia alegar de contrario la excepción y leyes de superior su prueba y mas el caso y confiesa el vendedor que los trescientos cincuenta pesos de pto es el justo precio y verdad valor de dicho esclavo que no vale mas, y caso de que mas valga y su demasía en poco o mucha suma le hace gracia y donación a la compradora y los suyos buena pura y perfecta e irrevocable de las que el dicho llama.
+
+Ha satisfecho el testigo actuaria don Bonifacio Salazar a nombre de Agustín Daza, cuatro por el derecho de alcavola al 1% deducidos de doscientos y quarenta en que vendió Marcelino Valencia un negrito llamado Manuel. Quibdó 3 de marzo de 1808
+
+Jose Maria Valencia
+
+Inter con insinuación en forma sobre que renuncia la ley del ordenamiento real fechada en cortes de Alcalá de Henares y los cuatro años en ella declarados para repetir

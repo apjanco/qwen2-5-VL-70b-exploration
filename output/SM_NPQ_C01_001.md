@@ -1,0 +1,1 @@
+The text on the notebook cover reads "norma" at the top and "Clara" at the bottom. There is also some Hebrew text in the center, which appears to say "תל אביב" (Tel Aviv).

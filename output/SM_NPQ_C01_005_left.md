@@ -1,0 +1,9 @@
+francisco de paz, conmigo dicho gobernador y testigos por el impedimento referido
+
+carlos de gravina - Agustin daza
+
+por lo aceptante francisco de paz
+
+venta - Tierra.
+
+En el pueblo de san francisco de quibdo capital de la provincia del citaro a ocho dias del mes de marzo de mil ochocientos ocho ante mi Don Jose dionisio de villarreal niente de gobernador corregidor de este pueblo y de los testigos con quienes actuo por impedimiento del unico escribano: parecio presente don tomas polo vesino de esta provincia a quien certifico atraso y otorga que vende y da en venta real y en perpetuidad enagenacion desde ahora y para siempre: Jemas a Maria Antonia cordova y a sus dos hijos Melchor y Santiago negros libertos y vecinos estas provincias es a saber la quebrada de Xndipurdo con quatro entablados, una casa en la quiebra do quebrada, quatro canesas de ganado y una esclaba llamada Quitenia; I quebrada y otros fueron adjudicados a dos a la tutela de Don Miguel Buich por fallecimiento de sus padres, y esto le fue entregado a autotar y curador Don Carlos de andrade de quien lo hubo el vendedor: y contestando por las hajuelas que al testigo y curador se hicieron las adjudicaciones, havia en esta quebrada cinco cortes entablados, los quales fueron adjudicados y repartidos entre los tres herederos en esta forma: a Don Luis Trelles los entables y cortes de san lorenzo cuarenta y cinco: el de san visente en treinta y siete y medio, los mismos de que les hizo venta al otorgante, Don Luis Trelles, como consta de la escritura que se halla en el protocolo del año de mil setecientos noventa y siete de fox Zo: y los dos nombrados la candelaria y el tigre que son los quatro cortes incertos en esta venta; exceptuando el del Arenal con su entable adjudicado en dichas hajuelas a Don Pedro Scarpeto en quarenta, como marido de Doña

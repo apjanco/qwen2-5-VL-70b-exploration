@@ -1,0 +1,1 @@
+The image contains the handwritten number "800".
