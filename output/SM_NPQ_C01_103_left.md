@@ -1,0 +1,1 @@
+The image does not contain any visible text. It shows a spiral-bound notebook with a blank page and some office supplies, but there is no text on the page or in the visible parts of the image.

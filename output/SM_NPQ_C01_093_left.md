@@ -1,0 +1,10 @@
+Como por contrato y sentencia pasada en autoridad de cosa juzgada consentida y no apelada sobre que renuncia las leyes, fueros, y derecho de su favor la si convenerit y general del derecho en forma. En cuyo testimonio así lo dice y otorga con aceptación de Don Jose Maria Cardenas quien para ello expresa tener recomendación del liberto Antonio y lo firma también a su nombre haciéndolo por el otorgante y a su ruego uno de los testigos presentes que fueron Don Manuel Scarpetta y Don Miguel Bosch.
+
+Por el otorgante
+Manuel Scarpetta de Roa
+Jose Maria Cardenas
+Antemi Vicente Olachea
+
+VENTA - ESCLAVO
+
+149v En el pueblo de San Francisco de Quito capital de la provincia del Cibao a veinte y uno de Julio de mil ochocientos diez: Ante mi el escribano y testigos que se nombraran pareció presente en la casa de su morada y bastante entiendo Don Angel Perez de este vecindario a quien doy reconocimiento y dijo: Que desde el año de 1805 tiene celebrada venta con Baltasar de Cordoba de la misma vecindad de una mulata llamada Luisa en cantidad de trescientos sesenta pesos de plata y no habiendo podido entregar la escritura correspondiente por sus ocupaciones lo executo en este día expresando: Que vende y da en venta Real y perpetua enajenación desde ahora para siempre jamás al citado Baltasar de Cordoba la dicha mulata Luisa esclava propia del otorgante quien se halla libre de otra anterior venta, censo, empeño ni hipoteca tanto ni expresa pero con todos sus vicios tachas defectos, enfermedades públicas y secretas por el precio y cantidad de los mismos trescientos sesenta pesos de plata que confiesa tener recibidos desde el citado año de 1805 recibidos de mano del comprador a su entera satisfacción y contento: Sobre que por no ser de presente su entrega para que yo dicho escribano de fe de ella la confiesa el otorgante y renuncia alegar de contrario la excepción de la non numerata pecunia prueba de su recibo y mas del caso y declara que dicha cantidad recibida es el justo precio y verdadero valor de la mencionada esclava.
