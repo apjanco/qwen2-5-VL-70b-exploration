@@ -1,0 +1,1 @@
+The image shows an open notebook with grid paper and a spiral binding on the right side. There is no text written on the page.

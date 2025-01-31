@@ -1,0 +1,13 @@
+que es natural a todo viviente y so hora incierta, deseando que quando llegue la mia me halle prevenido de disposicion testamentaria formarla la siguiente
+
+Primero encomiendo mi alma a Dios nuestro Señor que la crío y redimio con su preciosísima Sangre y el cuerpo mando a la tierra de que fue formado, el que hecho cadaver quiero sea amar- tajado con el avito que visten los religiosos de nuestro Seráfico padre San Francisco y se sepulte en el cementerio de esta ciudad y tem lego a las mandas forzosas y acostumbradas a un real cada una cuyo importe se sacara de mis bienes y sera satisfe- cho por mis Albarcas a quien corresponda
+
+Ytem es mi voluntad que lengan presentes estos mis pocos haberes para que en su virtud puedan proceder a hacer mi fu- neral entierro y demas exequias con la moderacion debida, encargandoles si que se me diga lo misma acostumbrada de cuer- po presente el dia de mi fallecimiento siendo hora competen- te y sino el siguiente
+
+Ytem declaro: Que soy casado y velado segun orden de nuestra Santa madre la iglesia con Doña Maria Teresa Lo- zo, durante cuyo matrimonio hemos tenido y procreado por nuestros hijos legitimos y de legitimo matrimonio a Juan Antonio, Jose Joaquin, Jose Ignacio, Ana Maria, Maria Ygna- cia y Maria Isabel Ramirez y Lazo
+
+Ytem declaro que cuando contraxe matrimonio introduxe a el un mulato mi propio esclavo nombrado Tomas valuado en doscientos cincuenta patacones, y mi citada esposa a porto lo que consta por la respectiva escritura dotal que a su favor otorgue en la ciudad de Buga ante el escribano del numero de ella Don Tomas de la Borda sin acordarme de la fecha; y a mayor abundamiento la herencia de su madre Doña Anto- nia Alvarez que le correspondio cuya porcion consta de la memoria testamentaria que otorgo esto ante testigos la misma que para en poder de mi citada esposa
+
+Ytem declaro por bienes mios cincuenta patacones que me pertenecen de un negro esclavo nombrado Nicolas el mis- mo que dono Doña Ana Perez a favor de mis tres referidas hijas a razon de cien patacones cada una y por fallecimien- to de la Maria Ignacia una de las donatarias recayo la mitad de estos en mi como su padre
+
+Ytem asimismo declaro por bienes mios una espada con guarnicion de plata que la tengo prestada a mi dicho hijo Juan Antonio — Seis cucharas y cuatro tenedores de plata— y Una quadra de tierra en media canoa Jurisdiccion de Cali, de- clarando que todos los demas bienes que he manejado pertene-

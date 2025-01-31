@@ -1,0 +1,1 @@
+The image shows a blank page from a spiral-bound notebook with grid lines. There is no text on the page.
