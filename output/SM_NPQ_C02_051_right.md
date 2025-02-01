@@ -1,0 +1,12 @@
+Lisso de paz e ysidro pereañez vecinos
+A Roego de la otorgante ysidro pereañez
+Manuela de Cordova Ante mi
+vicente Olachea
+
+LIBERTAD - Esclavo
+
+90r En la ciudad de Quibdo capital de la provincia del cibera a treinta y uno de Julio de Mil ochocientos trece. Ante mi el escribano y testigos que se nombraran parecio el ciudadano Tomas Perez vecino de la plaza de Cartagena a quien doy fe conozco y otorga: Que da carta de ahorro y libertad en forma a ysidro Jose su propio esclavo, graciosamente y sin interés alguno a fin de que lo goce y disfrute como si fuera naturalmente libre; se desapodera desde quita y aparta desde hoy para siempre Jamas del derecho de patronato, y dominio que hasta ahora tuvo sobre el, y lo cede renuncia, y traspasa a su favor a fin de que no vuelva a estar sujeto a servidumbre y le confiere poder irrevocable con libre franca y general administración para que trate, contrate, teste, comparezca en juicio por sí, o por medio de sus apoderados, y practique sin intervención del otorgante todo cuanto esta permitido a los que nacieron libres, usando en todo de su espontanea voluntad; pues para ello formaliza a su favor esta escritura con los requisitos legales que sean precisos y conducentes a su mayor estabilidad, me pide que de ella le de las copias autorizadas que quiera para su resguardo, y obliga su persona y bienes a no revocar total ni parcialmente interpretar ni reclamar esta libertad, y manumisión sin embargo de las causas que para volverlo a su poder y dominio prescriben las leyes que renuncia, y si lo hiciere no se le oiga ni admita en tribunal alguno, y sea visto por lo mismo haberla aprobado y ratificado añadiendo fuerza a fuerza y contrato a contrato; da amplio poder a los señores jueces de esta ciudad y de otra quelesquiera para que le compelan a la observancia de este, como por sentencia definitiva pasada en autoridad de cosa Juzgada y consentida que por tal lo recibe; renuncia todos los leyes, fueros y derechos de su favor, con la general en forma. En su testimonio así lo di xo y otorgo con aceptación del sindico procurador general en calidad de protector de esclavos a nombre del liberto, quien también lo firmo haciendo lo por el otorgante por decir no saber uno de los testigos a su ruego que lo fueron Don Antonio Garcia y Falcon francisco de paz, y ysidro pereañez vecinos.
+
+A Roego del otorgante Xsidro pereañez
+Saturnino de Lloredo Ante mi
+Vicente Olachea

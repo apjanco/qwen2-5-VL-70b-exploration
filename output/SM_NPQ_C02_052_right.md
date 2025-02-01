@@ -1,0 +1,12 @@
+hasta dexar al comprador en quieta y pacífica posesion y no pudiendosela quedar le devolvera la suma de los trescientos pesos de plata si ya los hubiese recibido y le pagara las costas y gastos de su incertidumbre cuya prueba difiere a su simple juramento relevandole de otra aunque por derecho se requiera. A cuya observancia y puntual cumplimiento de todo lo referido obliga los bienes presentes y futuros de su parte con el poderio de justicias sumision de fuero y renunciacion de leyes en derecho necesarias con la general en forma. En su testi- monio con aceptacion del señor Don Miguel Buch a nombre y en virtud de recomendacion que al efecto tiene del comprador Manuel Salazar así lo dicen otorgan y firman a quienes doy fe conozco siendo testigos Don Jose Maria Palomeque, Don Nicolas Machado y Francisco de Paz vemos.
+
+Maria Eulalia de Aguado
+Ante mi
+Vicente Olachea
+
+por Manuel Salazar
+Miguel Buch
+
+VENTA - ESCLAVO
+
+94v En la ciudad de Quito capital de la provincia del Catorce a once de Agosto de mil ochocientos trece. Ante mi el escribano y testigos que se nombraran parecio en la casa desumorada el señor Doctor Don Manuel Borrego vicario Superintendente de esta dicha provincia a quien doy fe conozco y otorgo: Que vende realmente y con efecto a Don Joaquín Colon de la propia vecindad un mulato su propio esclavo cautivo y sujeto a servidumbre nombrado Tomás de oficio Zapatero mismo que hubo por compra que hizo a Don Pedro Figueroa vecino de la ciudad de Cartago según consta de la escritura que ante el teniente de gobernador de esta provincia Don Jose Dionisio Villar (ya difunto) y testigos por falta de escribano le otorgo el dia veinte y nueve de Abril de mil ochocientos nueve a que se remite. En cuya virtud lo ha poseido libre de otra venta censo empeño ni hipoteca tácita ni expresa como lo asegura y se lo con todos sus vicios tachas defectos enfermedades públicas y secretas en precio y cantidad de trescientos pesos de plata de que por el le ha dado por dinero de contado siendo de cargo del señor otorgante la daga del derecho de alcabala que aunque se halla satisfecha por el señor Don Pedro Jose Nuñon cura de Bebera fue por una involuntaria equivocación pues lo pago el señor otorgante y se carega la boleta dada por el señor ministro de hacienda que copiada dice así y de la suma recibida se confiesa entregado a su voluntad renuncia decir lo contrario la excepcion de la non numerata

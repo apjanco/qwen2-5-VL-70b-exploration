@@ -1,0 +1,12 @@
+el vendedor su hijo Andres Antonio Tapia y por la compradora uno de los testigos que lo fueron Don Santiago Polo, Joaquin Alameda y Ysidro Pereañez vemos.
+
+Por mi legítimo padre
+Andres Antonio Tapia
+
+Por la aceptante
+Christobal Santiago Polo
+Ante mi Vicente Olaechea.
+
+LIBERTAD - ESCLAVO
+
+For En la ciudad de Quibdo capital de la provincia del citara a veinte y nueve de Mayo de mil ochocientos trece. Ante mí el escribano y testigos que se nombraran parecio en la casa de su mujer Doña Maria Quintero viuda de Don Tomas Polo, Albacea testamentaria fideicomisaria tutora y curadora de sus menores hijos y los mayores Don Santiago Doña Gertrudis Polo y Don Manuel Alarcon legítimo consorte de Doña Francisca Polo a quienes doy fe conozco y otorgan: Que dan carta de alhoro y usentad en forma a Juan Mayo y Maria Rosa Moreno su mujer esclavos de dicha testamentaria en la cantidad de ciento sesenta pesos de plata de a ocho reales los mismos en que han sido justificiados ambos, esto es, ochenta para cones cada uno por peritos electos de conformidad de todos los interesados y ha XO de Juramento que prestaron en manos del excelentísimo señor presidente de este estado por ante mí de que doy fe, y dicha cantidad de los ciento sesenta Pesos de plata confiesan dicha viuda y herederos tener recibidos de mano del llamado don Juan Mayo. A su entera satisfacción y contento en diez onzas o Medallas de oro de a ocho pesos castellanos moneda sellada usual y corriente, de cuya entrega doy fe por haberse hecho en mi presencia, y como real y efectivamente satisfechos de ellos formalizan asufavor el resguardo o carta de pago mas firme y eficaz que a su seguridad convenga. En cuya virtud se desisten quitan y apartan del derecho de patronato, posesión, propiedad, dominio y señorío que a los dichos Juan Mayo y Maria Rosa Moreno su mujer recién adquirido y todos los ceden renuncian y traspasan en su favor a fin de que no vuelvan a estar sujetos a servidumbre, y les conceden poder irrevocable con libre franca y general administración para que traten, contraten, testen, comparezcan en juicio por sí o por medio de sus apoderados, y practiquen sin intervención de los otorgantes cuanto esta permitido a los que nacieron libres, o- sando en todo de su espontánea voluntad, pues para ello formalizan a su favor esta escritura con los requisitos legales que sean precisos y conducentes a su mayor estabilidad; me piden que de ella les de las copias autorizadas que quieren para su resguardo;

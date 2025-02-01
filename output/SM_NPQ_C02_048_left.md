@@ -1,0 +1,13 @@
+Ella, no consta la condición que celebramos, declaro, que después de mi fallecimiento, se las había de llevar dicho Roxas, por vía de venta, en la misma cantidad en que me las dio ami, menos las plantas que yo cultivase, y estas por un justo precio de dos peritos, que al efecto nombrasen el, y mis herederos havia de satisfacer su importe: lo qual hordeno, y mando a mis olvaceas lleven a puro y debido efecto esta clausula.
+
+Y tem declaro a si mismo por bienes mis los esclavos siguientes: Feliciano, Juan de Dios, Cruz, Manuela, Tereza, y Manuela amilla, cuatro acalabosos, una Acha, un machete, una escopeta dañada, una mesa, un taburete viejo, dos Bahules de sedro con sus serraduras corrientes una frasquera id, una 85r cama de cuja con su toldo bueno de futa blanco, una sabana, y dos almohadas.
+
+Y tem declaro, por bienes mis una caixa situada en la ciudad del citara, con sus puertas y cerradura y dentro de ella dos sillas, y dos taburetes, mas una mesa, dos camas de estopilla de algodon, dos colsones cortos uno de Borlon, y otro de lo mismo, y mas troca vieja muy husada, mas otra camisa de estopilla de algodon nueva, en poder de la Trinidad Olaya.
+
+Y tem mas declaro los objetos siguientes: Tres nudos de botones de oro de cuello de camisa, y puño, un rosario de oro, con su cruzero de cinco castellanos, un cautivo de id de peso de dos castellanos un alfiler de id, un sable de payo, y contera de plata, una Bayoneta con punta de id, y su vaina, guarnecida de id, dos cubiertos de id.
+
+Y tem declaro, mes son deudores los sujetos siguientes, Asuncion Andrade nuebe pesos quatro tomines procedentes de platanos, y un potro, o barquito que le vendi, Leon Renteria, siete pesos suplidos en dinero, Manuel Jose, esclavo de Feliciana vecina de Lloro, siete pesos presto de diez que le di, Barbara Robledo, ocho pesos, para cuyo pago, y seguridad me dio una cadena de oro, la misma que existe en mi poder, el Señor Don Miguel Buch, en varias partidas que le he dado, me deve ochenta y dos pesos castellanos que ha reservado para comprar una esclava perteneciente a Luisa Agudo, y otros varios individuos que constaran de una lista, que existe entre mis papeles.
+
+85v Y tem declaro, serle deudor a Nicolas de Roxas además de la cantidad constante por la escritura que le tengo otorgada ante el presente escribano, la de quarenta y ocho pesos castellanos.
+
+Y tem asi mismo le soy deudor, a Don Joaquin Toscon ve-
