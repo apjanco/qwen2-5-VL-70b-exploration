@@ -1,0 +1,13 @@
+The text in the image appears to be handwritten and is in Spanish. Here is the extracted text:
+
+```
+LIBERTAD
+
+En la ciudad de Quito capital de la provincia de Carabobo a los diez y ocho días del mes de Mayo de mil ochocientos veinte y uno. Ante mí el escribano Ximénez y testigos que se nombran pareció presente el señor Tomás Becerra vecino de la ciudad de Buga, quien dijo conocer y otorgar: Que da carta de suerte y libertad en forma a Rosalía su propia esclava en cantidad de doscientos pesos de plata de a ocho reales que confiesa el otorgante tener recibido de manos de Juan de Mena a su entera satisfacción y contento de ello otorga a favor de la libertad la más firme y eficaz seguridad que a su seguridad conduzca. En cuya virtud se declara, pone, aparta del derecho acción, posesión, propiedad, dominio y señorío que dicha esclava Rosalía tenía adquirido, y todos con él de patronato y derechos que corresponden al señor, renuncia y traslaza a favor de quien no vuelva a estar sujeta a servidumbre, y le confiere poder indecible con libre, franca y general administración para que trate contrato, este comparezca en Juicio, o fuera de él por sí o por medio de sus apoderados y practique sin intervención del otorgante todo cuanto esté permitido a los que nacieron libres, usando en todo de su encontrada voluntad, pues para ello formaliza a favor esta escritura con los requisitos legales y precisos que sean conducentes a su mayor estabilidad; Me pide que dé ella las copias autorizadas que quiera para su resguardo; Y así lo hago a petición suya y contradezir en manera alguna esta libertad si lo hubiere querido que no se le haya admitido en tribunal alguno como no lo es quien intenta acción o derecho que no le pertenezca y sea por lo mismo haberla aprobado ratificado añadiendo fuerza y vigor y contra a contrato contra todas las clausulas vinculantes y solemnidades que para su perpetua validación se requieran. Y a la observancia y puntual cumplimiento de todo lo referido se obliga con su persona y bienes habidos y por haber con el poder de justicias sumisión de fuero y renunciación de leyes en derecho conforme a la general en forma. Se sobretestimonio con apercibimiento de la libertad anotó lo dicho otorgante firma el que sabe y por la libertad lo hizo a su ruego uno de los testigos que fueron los señores José María Prado, Martín Guerrero, y Manuel de la Agüita vecinos y residentes.
+
+Tomás Becerra
+María Prado
+
+Ante mí Manuel Flores
+Escribano Interino del número
+```

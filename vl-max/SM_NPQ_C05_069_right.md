@@ -1,0 +1,1 @@
+The image shows a blank page from a grid notebook. There is no text to extract from this page. The grid lines are visible, but there are no written words or markings.

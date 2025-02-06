@@ -1,0 +1,11 @@
+The text in the image is handwritten and appears to be in Spanish. Here is the extracted text:
+
+```
+y tomados en
+y Domingo en
+y los derechos de tierra de la villa en
+y diez cabezas de ganado en
+Total 3,000
+
+Importan a una suma los bienes que comprenden las partidas anteriores la cantidad de tres mil pesos de plata (según error de pluma o tinta) de los cuales el otorgante se obliga a cumplir y entregar a su condición y entera satisfacción renuncia decir lo contrario las leyes de la entrega prueba de satisfacción término exigido y más del caso, y como real y efectivamente satisfecho de ello formaliza a favor de dicha su legítima esposa el resguardo más firme y eficaz que a su seguridad conduzca y declara que los bienes referidos han sido valuados por personas inteligentes electos de conformidad de ambos interesados y que en su fijación hubiera tenido en cuenta en el caso que alguna parte en para o mucha suma hace a favor de su esposa gracias y devoción pura pericia e irrevocable interés conminación demás estipulaciones legales. Y dicha cantidad total ha recibido a satisfacción y entrega en los mismos términos que ha señalado a su dicha condición. O cuando su acción tenga un continente que el matrimonio se disuelva por causa ajena de los mismos interesados por derecho y a ello quiere ser apoyado con todo rigor como también a la solución de las cosas que este contrato contiene. Se causará cuya liquidación defiere en su juramento y la relevancia de otra prueba para lograr renunciando la ley contenida del título II partido 49 el testimonio anual que le conceden y para poder cumplir lo hecho más puntual y exactamente se obliga igualmente no solo a sus bienes, oficio, ministerio ni a su cargo sino a sus deudas, créditos y excesos al importe de esta dote sino también bien a tener la notoria para su restitución y que en lo ejecutivo goce del privilegio dotal. A cuya seguridad cumplimiento y firmeza se obliga con sus bienes y haberes y haberlos a podería de justicias comisión de fuero y renunciación de leyes en derecho necesario con la general en forma. En su testimonio y estado que
+```

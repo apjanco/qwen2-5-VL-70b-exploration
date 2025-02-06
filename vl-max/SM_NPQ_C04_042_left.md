@@ -1,0 +1,13 @@
+The text in the image appears to be a handwritten document, possibly a will or testament, written in Spanish. Here is an extraction of the visible text:
+
+```
+TESTAMENTO
+
+En el nombre de Dios todo poderoso Amen. Sepan todos quantos esta Carta testamento vieren como yo Don Francisco Garcia y Ruiz, natural de los Reynos de España, en el Reyno de Sevilla, vecino desta provincia del citado hijo legitimo y de legitimo matrimonio de Don Juan Garcia y Bernal y de Doña Gerónima Ruiz y Diaz mis padres difuntos; hallandome como me hallo gravemente enfermo pero en mi entero y sano Juicio memoria entendimiento y voluntad, tal qual Dios nuestro señor ha sido servido darmi creyendo firmemente en el alto y sacrosanto misterio de la santísima Trinidad padre hijo y espíritu santo tres personas distintas y una divina verdadera y todas las demas misterios que tiene este y confiesa predicar y enseñar nuestra Santa madre la Iglesia Católica Apostólica Romana bajo de cuyo yugo y obediencia he vivido y protesto vivir morir católico fiel cristiano; y temeroso de la muerte que es natural al hombre vivo haziendo este mi testamento último y final ordeno y dispongo en la forma y manera siguiente:
+
+1º Firmemente encomiendo mi alma a Dios nuestro Señor que la creo y redimio con su preciosa sangre, y el cuerpo mando a la tierra donde fue formado, el cual hecho cadaver sea mi voluntad sea sepultado en el panteon de esta Santa Iglesia amortizado con el cuarto de San Francisco de Asis, o como lo determinen mis albaceas, y misa de cuerpo presente, y ano se pueda que sea al dia siguiente, y se hagan dos (ilegible) con exequias, y a mas tres dias de funerales, y las misas para sufragio del alma de mi difunta esposa, y asimismo mandando se digan en esta provincia quinientas misas por mi alma pagadas de su limosna, y siendo y sinquenta en la provincia de Popayan cuya limosna sera de ocho reales.
+
+2º Y declaro se le den a las monjas forzosas y acostumbradas a cuatro reales a cada una, y dezco al culto del santuario sagrado mento colocado en esta Santa Iglesia del citado decente patrono cien pesos que se fundaran por mis dirigidos a reconocimiento y su realidad para ayuda de la lampara quedando el principal en poder de mis herederos siempre que lo aseguren a rendirme, declaralo para que conste.
+
+3º Y declaro que de mis bienes les queden doscientos pesos gastos que serian de (ilegible) de la construcción del tabernaculo de esta Santa Iglesia del Charro, cuya cantidad se entregara al sindico de esta Santa Iglesia, y lo declaro para que conste.
+```

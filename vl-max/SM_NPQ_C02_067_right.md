@@ -1,0 +1,1 @@
+The image shows a blank page from a grid notebook. There is no text to extract from this page. The grid lines are evenly spaced, and the page appears to be unused.

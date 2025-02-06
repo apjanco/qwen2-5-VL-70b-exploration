@@ -1,0 +1,1 @@
+The image shows a spiral-bound notebook with a brown cover. There is no visible text on the cover of the notebook.

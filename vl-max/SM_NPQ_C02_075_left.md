@@ -1,0 +1,12 @@
+The text in the image is handwritten and appears to be in Spanish. Here is the extracted text:
+
+```
+LIBERTAD
+
+28r. En la ciudad de Quito, Capitán de la provincia del Catorce y tres de Marzo de mil ochocientos cuarenta y dos años, ante mí el escribano y testigos que se nombraron para seren en la casa de su morada Doña María Quintero, viuda de Don Tomás Polo, igualmente que sus hijos y sus herederos Don Santiago y Doña Gerónima Polo y Quintero vecinos de ella a quienes doy fe conocieron y dijeron: Que don Basilio esclavo de dichos Don Tomás Polo por la cantidad de pesos de plata que constituyen los derechos totales recogidos del mismo Basilio a su entera satisfacción y contento sobre renuncia decir lo contrario la excepción de la no nupcialidad permanece su venta al derecho canónico y más del caso. En cuya virtud se declara unión del derecho de patronato, posesión, propiedad, dominio y señorío sobre el citado Basilio tenían adquirido y poseído con renuncia y traslación en favor ajeno de que no puede estar ajustado a segundones y le conceden poder imprescindible con libre franqueo y general administración para que contrate y celebre compraventa en su nombre conste sin miedo de sus apoderados y estén bien interpretados los objetos de todo cuanto está permitido en orden a su exposición voluntaria, pues para ello formulan la presente escritura con los requisitos legales y precios que sean conducentes a su mayor estabilidad y fijen de ella le de las copias autorizadas que quisiere para su seguridad y se obligan a reclamar su contrato en manera alguna esta libertad, y si hicieren quieren que no les sea admitida en tribunal alguno como no la expongan absolutamente no tiene acción ni derecho ni su amparo intenta, y sea vista por él mismo habiendo la aprobado y validada añadiendo fuerza y contrato a contrato que contiene todas las cláusulas anotadas y solemnidades que haya perfecta validación de requerirán. Y a la aceptación y por cumplimiento de todo lo referido se obliguen el varón con su persona y todos sus bienes habidos y por haber al consejo poder de Justicia sumisión de justo renunciación de leyes en derecho necesarias con la general en forma. En testimonio de lo cual firman los que saben haciendo señas este testigo que lo fue Don Agustín Romero, Don Joaquín Escobar, y Francisco de Paz Vecino.
+
+María Quintero
+Crucisval Santiago polo María Gerónima polo
+Agustín Romero
+ante mi Vicente Olachea
+```

@@ -1,0 +1,13 @@
+The text in the image is handwritten and appears to be in Spanish. Here is the extracted text:
+
+```
+dona que los dichos doscientos sesenta patrones estan suelto pre-
+cio de las esclavas Andrea y Zaida sabiendo que no tienen mas y solo
+que valgan de su demasia en mucha o poca suma hace esta venta y renun-
+cion al comprador y sus herederos y sucesores buena para siemper per-
+fecta e irrevocable de las que el derecho llama intervinientes con renun-
+cion en forma acerca de la cual renuncia la ley del ordenamiento comu-
+n Real fecha en cortes de Alcalá de Henares y los quatro años en ella declarados para recibir el engenio y el derecho de propiedad dominio y señorío que a las recodadas esclavas tenia adquirido le ce-
+renuncia y traslada al comprador Nicolas Salazar para que las goce posea y tenga segura a su voluntad aviendo vendido los dichos doscientos patrones que le restan y como sean vendidos se obliga a la ejecucion y saneamiento de esta venta en tal manera que siempre la sera cierta segura y valida y que saliendo por su calidad y goze no se pondra pleito ni contradicion alguna y aunque lo pusiere o moviere luego que le constre saldra a la voz de defensa y a su costa y mención la segura y fenecera hasta dexar al comprador en quieto y pacifica posesion de todo lo comprado sin devolverle los doscientos patrones recibidos como ya queda mencionado de los sesenta syete se les habran satisfecho con el mas valor adquirido con el tiempo y le quedara todas las costas y gastos que sobre ello se les especien y causaren cualquier liqui-
+dacion y lastro desfere en el simple aumento de la carta escrita y sellada y esta escritura sin mas prueba deque la palabra. Y estando presente el citado Nicolas Salazar que asimismo da su consentimiento y habiendo sido el trato de esta escritura en quanto ha lugar en derecho por la presente otorgo que doy la cantidad de doscientos patrones de acho reales parte del precio en que se han vendido las esclavas Andrea y Zaida que concierten tener pesadas dichas cantidades. Se obliga a satisfacerlas dentro del termino de tres meses contados desde hecho en mas plazo al comprador devenga con las letras y gastos de la cobranza y cada uno por la presente cabañal con el poder de Justicias Samsion de fuerza y promision de hacer derecho necesarias con la general forma. Apreciese la letra de Alcaldía dada por el senor ministro oficial Real de haberse satisfecho la correspondiente a esta venta quedando.
+```

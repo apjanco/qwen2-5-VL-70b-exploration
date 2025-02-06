@@ -1,0 +1,13 @@
+The text in the image appears to be handwritten and is in Spanish. Here is an attempt to extract the text:
+
+```
+Testigo Miguel Jerónimo Espada
+Testigo Xandro Pérez
+
+LIBERTAD
+
+En quinto capital de la provincia del citado a trece días del mes de octubre de mil ochocientos veinte. Ante mí, el escribano interino y testigos que se nombran pareció el señor procurador Antonio García, vecino de esta ciudad, quien dice fe conmigo y otorga, que da carta de arrojo y libertad en forma a su esclavo Nicolás, propio de los de su cuadrilla, hacienda de su hijo mayor Francisco García Ruiz según la cláusula de dicha disposición testamentaria que otorgó el 8 de noviembre del año próximo pasado de 1819 y corre en el registro que está en mi cargo, quien desde hoy será libre como si naturalmente fuese libre se desiste de su derecho de patronato y aparta desde hoy para siempre jamás del derecho de patronato dominio que hasta ahora hubo sobre él, y lo cede renuncia traspasa a su favor a fin de que no vuelva a estar sujeto a servidumbre, y le confiere poder irrevocable con libre y general administración para que trate contrate, teste comparezca en justicia por sí o por medio de sus poderdantes y practique sin intervención del patrono todo cuanto esté permitido a los que nacieron libres, usando en toda su extensión la voluntad, pues para ello formaliza esta escritura con los requisitos legales que sean precisos y conducentes a mayor estabilidad me pide que de ella las copias que pueda necesitar para su resguardo y obliga su persona y bienes a no rebajar total ni parcialmente, interpretar ni fecundar esta libertad manumisión sin embargo que de las causas que puedan darse a su poder y dominio prescriben las leyes que renuncian y si el notario no se halla ni admite en tribunal alguno y sea visto por lo mismo hacerla aprobado y ratificado, viendo fuerza a fuerza y contrato a contrato con todas las cláusulas y solemnidades que se quieran para su perpetua validación; do poder amplio a los señores jueces de esta ciudad para que la concedan a la observancia de la ley como por sentencia pasada en autoridad de esta Justicia y colocado al lado del recibo, pero todas las leyes fuerzan derechos a su favor con la que produce su general renunciación, qui lo otorga y firma con la aceptación del liberto, quien también dio fe conmigo.
+Siendo testigos los señores regidores Esteban Pelayo José María Yaranga vecinos, y por no saber firmar al otorgante lo hace a
+```
+
+The text appears to be a legal document related to the granting of freedom to a slave named Nicolás by his owner, Antonio García. The document includes details about the legal process and the witnesses present during the signing.

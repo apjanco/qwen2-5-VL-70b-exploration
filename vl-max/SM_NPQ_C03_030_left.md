@@ -1,0 +1,11 @@
+The text in the image appears to be handwritten and is in Spanish. Here is an attempt to transcribe it:
+
+---
+
+y por tal conocimiento de todo lo resuelto se obliga con su persona y bienes habidos y por haber con el poder de justicias sumisión de fuerza y renuncia de leyes en derecho necesario con la general conformidad en testimonio con aceptación de la actitud Briga da a nombre de dicho Paulino que lo decía y firmaba el otorgante y por la misma Brigida que dijo no saberlo hacer a su cargo uno de los testigos que fueron los ciudadanos Manuel Flores, Francisco Nieto y Salvador Palacios vecinos Manuel de Alarcon ante mi Vicente Olachea escribano público.
+
+Pago obligación esclavo
+
+En la ciudad de Quito capital de la provincia citada a veinte y tres de febrero de mil ochocientos diez años. Ante mí declararon y testigos que se nombran capaz el ciudadano Joaquín freire de Andrade vecino de ella y apoderado general de su señora María Clemencia Pacheco viuda y vecina de Francia como según consta del que ante mis testigos obró el día diez de junio de mil ochocientos quince de cuyo fe y asunto de las facultades que le son conferidas otorga que siendo desde dicho año hasta contra el ciudadano presbítero Pedro José Coepete su razón de la fianza que contribuyó de la cantidad de documentos sin cuenta pesos plata procedente de la libertad del negro Domingo propio que fue del mismo esclavo ha habido en la testamentaria dinero con que cumplió la de un pago de deudas contraída Gregoria la cual asegura al señor otro particular posesión y propiedad al indicado añada. Con lo cual se desempeña dicha obligación hipoteca y demás confirmaciones públicas y secretas. En consecuencia declara que también quedará escrita Gregoria de Yole Mas y aunque más valga la suma de mucha o poca cantidad hace gratificación anualmente de su parte al acreedor Ciudadano Coepete bueno para mejor percepción e intercambio intereses con la manojo de la presente y renuncia de lesiones sobre que renuncia la ley del ordenamiento Real fecha en cortes de Alcalá de Henares, demás que hablan en ta—
+
+---

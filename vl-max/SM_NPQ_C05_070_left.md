@@ -1,0 +1,1 @@
+The image shows a blank page from a grid-lined notebook. There is no text to extract from this page. The notebook is open, and the left side of the page is visible with a spiral binding on the left edge. The background appears to be a dark surface, possibly a desk or table.

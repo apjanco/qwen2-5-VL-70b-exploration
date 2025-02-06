@@ -1,0 +1,12 @@
+The text on the page appears to be handwritten in Spanish. Here is an attempt to transcribe it:
+
+```
+[...] mantenimiento y renunciación necesaria sobre que renuncia la ley del [...] encomendamiento Real fecha en cortes de Alcalá de Henares y demás que habían en razón de lo que se compró vende por más o menos de la mitad del justo precio y el término concedido para la prescripción del contrato o su suplemento. Mediante lo cual se desiste quita y aparta del derecho de acción posesión propiedad, dominio y señorío que al nominado esclavo Juan Chocotowlo tenía adquirido y todos con él de patronato y demás que le correspondan los derechos de renuncia y traspaso en el comprador y sus herederos que en señal de posesión y para título de ella ofrece a su favor esta escritura por la que ha de ser visto haberla aquí [...]
+33v pido sin que sea necesario de otro acto de apreciación de que lo releva y se obliga a la ejecución y saneamiento de esto vel fu a su costa y mención hasta asentar al comprador en quieto y pacífica posesión y no pudiendo la cancelar ledévolva la suma recibida y le pagará las costas y gastos de su juicio. También una ordena deseche a su simple juramento relevándole de todo aquello que por defecto se requiera. Y a la observancia y puntual cumplimiento de todo lo referente se obliga con su persona y bienes habidos y por haber con el poder de Justicias Emisión de fuerza y renunciación de leyes al derecho necesario contra general en forma. En testimonio de aceptación de Don Juan Antonio Ferro en virtud de recomendación que tiene del comprador así lo dice otorgan y por no saber firmar el vendedor lo hace a sugerencia uno de los testigos que lo fueron Francisco de Paz, Santiago Peraza y Valdino Ramírez vecinos [...]
+A ruego del otorgante, y como testigo Francisco de Paz
+Juan Antonio Ferro
+Nicente Clochegq
+
+LIBERTAD
+35r En la ciudad de Quito capital de la provincia de Quito a diez y seis de Abril de mil ochocientos catorce. Ante mí el escribano y testigos que se nombran para el citado don Antonio Agustín Romero vecino de ella a quien hoy se conoce y trata: Que da carta de otorgamiento libertad en forma a Santiago Pinilla su propio esclavo por la cantidad de cuatro veintey cinco pesos castellanos que valen doscientos cuarenta y cuatro reales que confiesa haber recibido de mayo del propio Santiago a su entera satisfacción y contento sobre que renuncia desde lo contrario la excepción de la non numerata pecunia su prueba de la [...]
+```

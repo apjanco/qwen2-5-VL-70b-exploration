@@ -1,0 +1,9 @@
+The text in the image is handwritten and appears to be in Spanish. Here is the extracted text:
+
+```
+1647 En el nombre de Dios todo poderoso Amen. Yo Gertrudis Polo hija legítima de Don Bartolomé Polo y de Doña Francisca Correa, todos vecinos de esta ciudad hallándome enferma del cuerpo, pero en mi entero y santo juicio, memoria y entendimiento y voluntad tal que a nuestro señor ha sido servido darme, teniendo de la nueva que es natural a todo viviente y deseando apresurar mis disposiciones para cuando llegue el caso, asiento en mi conciencia creyendo como firmemente creo en el alto y sagrado misterio de la Santísima Trinidad Padre Hijo y Espíritu Santo tres personas distintas y una sola verdadera y en todos los demás misterios que cree confiesa predica y enseña nuestra Santa Madre Iglesia Católica Apostólica Romana, bajo cuya fe excrecencia he vivido y protesto vivir y morir como católica y felicitar con este rito y orden esto firmemente renunciando a Dios nuestro Señor que la crió de la nada y redimió con el inestimable precio de su sangre santísima, y el cuerpo mundo a la tierra de que fue formado y cual es al vuelto será amortizado son habito de fula yed.
+
+Y finalmente encomendándome a Dios Nuestro Señor que la crió de la nada y redimió con el inestimable precio de su sangre santísima, y el cuerpo mundo a la tierra de que fue formado y cual es al vuelto será amortizado son habito de fula yed.
+
+Y finalmente encomendándome a Dios Nuestro Señor que la crió de la nada y redimió con el inestimable precio de su sangre santísima, y el cuerpo mundo a la tierra de que fue formado y cual es al vuelto será amortizado son habito de fula yed.
+```

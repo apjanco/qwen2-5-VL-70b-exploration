@@ -1,0 +1,12 @@
+The text in the image is handwritten and appears to be in Spanish. Here is an attempt to transcribe the text:
+
+```
+5º declara haber comprado una partida de hierro y acero con otros efectos en compañía con don Ramón de Diego Jiménez, cuyo valor está ya satisfecho por ambos interesados y se cobrará a cuenta simple que ha llevado sobre el particular en unos papeles sueltos.
+6º Y tem declaro haber remitido para Panamá con don Francisco Ayala y a disposición de don Manuel María Paredes, Don Francisco Arocena cinco negros esclavos a fin de que se vendieran en la provincia del Perú; los que no se han vendido hasta ahora según consta de sus cartas que se consideran justos, procurarán su venta de dichos esclavos y proporcionarán la remisión de sus mujeres e hijos, siendo (destinado) que de los expresados cinco negros solo el Santiago y el Juan están del tronco de la hacienda.
+7º Y tem declaro que el Doctor Don Andrés Eguiguren debía a mi sobrino padre Don Xavier Yela Cruz Seiscientos guaraníes y por no haberlos podido cobrar endoso el vale en su hermano político Don Gabriel Santa Cruz quien cobró dicha cantidad y le declaro para que conste por el derecho que pueden tener los legítimos reclamados.
+8º Y tem declaro: Que a su sobrino el Doctor Santa Cruz le dio cuatro mil palotes en dinero para la negociación que había de hacer a Jamaica y Cartagena girando igualmente libremente para que don Tomás Andrés Torres o cualquiera otra persona le proporcionase lo necesario para el viaje y en caso de regresar a esta capital se devolviera cantidad y alhombro no se sabe hasta ahora qué cantidad de.
+9º Y tem declaro que la expresada negociación de su sobrino el Doctor Don Tomás Santa Cruz debe repartirse como compañía en que el otorgante ha puesto el principal para abrir su personal industria y trabajos y por lo mismo que se haga las utilidades en dos partes iguales llevando la una por su propia razón su proyecto subiendo quinientos años la otra al provecho del caudal propio destinado a la satisfacción de por largo este contrato.
+10º Y tem declaro que habiendo estado asistiendo la administración de la mina de San Antonio perteneciente a la restablecida desde la muerte de su padre, cuando en los primeros años de tomarla a su hermana participó de la herencia la mitad de los productos de labranza sin descanso asegurando los gastos, pero después de deducir estos gastos.
+```
+
+This transcription may contain errors due to the handwriting style and quality of the image.

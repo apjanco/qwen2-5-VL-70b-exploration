@@ -1,0 +1,1 @@
+The image shows a blank page from a spiral-bound notebook. There is no text to extract from this page.

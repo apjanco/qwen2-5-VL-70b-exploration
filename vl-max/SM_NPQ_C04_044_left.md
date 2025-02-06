@@ -1,0 +1,1 @@
+The text on the notebook reads "120."

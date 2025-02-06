@@ -1,0 +1,10 @@
+The text in the image is handwritten and appears to be in Spanish. Here is the extracted text:
+
+```
+Sigo y firmo
+Ventura Olguín
+
+VENTA-ESCLAVO
+
+En la ciudad de Quito cabecera de la provincia del mismo nombre a veinte días del mes de junio de mil ochocientos doce. Ante mí el escribano de los Reales Despachos que suscribe pareció don Juan Chaves vecino y corregidor de esta ciudad quien por sí conoce y otorga Que vende y cede en venta y efecto a Joaquín Gayoso de la misma vecindad un negro suyo propio esclavo cautivo y sujeto a servidumbre nombrado Marcos el que se halla libre de enfermedad debida obligación en general, no tiene defecto ni mancha alguna y goza de buena salud y se lo vende con todos los vicios ocultos y aparentes enfermedades pulmonares y secreto de orina y su edad de Trescientos quarenta parientes parientes de ocho reglas que por él le ha dado en quinero un dinero de cantidad siendo de ochenta y seis reales de ambos la suma de alcabaza que han satisfecho al señor receptor de ellas quien en prueba de su recibo ha dado la bolita que se muestra y dice así: Yo el sumo decido decir que contrato la ejecución de la son numerada pecuniaria suma terminado más del caso y declaro que no vale más y caudal que muy valgo de su demasiado mucho o poco suma hace gracia y donación al comprador buena pura mera perfecta irrevocable de las que el derecho llama inter vivos en manera en forma acerca de la cual respeto la ley de ordenanza real fecha en cortes de Alcalá de Henares y los cuatro años ella declarados para recibir el engaño y demás que tratan en razón de las que se contratan y venden por más o menos de la mitad del Juez precio para la rescisión del contrato cesión compra y venta y acepta del derecho de acción posesión propiedad dominical y ejercicio que dicho Marcos tenga adquirirán y tengan con el de patronato y demás que le pertenezcan los cede renuncia y traslada en el comprador y sus herederos y sucesores sin reserva de posesión y otro título de ella otorga a favor que necesite de otro acto de posesión deseado releva se obliga a la ejecución saneamiento y firmeza de esta venta
+```
