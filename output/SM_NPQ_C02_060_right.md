@@ -1,0 +1,13 @@
+Quien intenta cession o derecho que no le pertenece, y sea visto por lo mismo haberla aprobado y ratificado añadiendo fuerza a fuerza y contrato a contrato con todas las clausulas vinculos y solemnidades que para su perpetua validacion se requieren. Y a la observancia y puntual cumplimiento de todo lo referido se obliga consigo bienes habidos y por haber con el poderio de Justicias sumision de fuero y renunciacion de leyes en derecho necesarias con la general en forma. En cuyo testimonio con aceptacion del sindico procurador general protector de esclavos asi lo dicen otorgan y firma por la otorgante a su ruego uno de los testigos que lo fueron Don Joaquim Polo alcalde comisario de esta ciudad, Don Juan Ferrer y Francisco Mercado vecinos.
+
+Por la otorgante Jose Joaquin Polo
+
+Ante mi
+
+Salvadorino de Lloreda
+
+vicente olavechea
+
+VENTA - ESCLAVO
+
+127 - En la ciudad de Quito capital de la provincia del citara a veinte y seis de Noviembre de mil ochocientos trece. Ante mi el escribano y testigos que se nombraran parecio en la casa de su morada Don Francisco Antonio Lloreda vecino dueño de minas y esclavos en ella a quien doy fe conozco y otorga: Que vende realmente y confecto a Don Gerónimo Martorell mercader residente en la misma ciudad un negro to su propio esclavo cautivo y sujeto a servidumbre nombrado Pedro Alexandrino el qual asegura el otorgante hallarse libre de empeño deuda obligacion e hipoteca especial ni general que no la tiene y se lo vende con todos sus vicios tachas, defectos enfermedades publicas y secretas en precio y cantidad de doscientos pesos de plata de a ocho reales que por el le ha dado en dinero de contado siendo de cargo del otorgante la paga del derecho de alcabala que ha verificado el señor receptor de ellos quien en prueba de su recibo ha dado la póliza que se inserta y dice así _______ y de la suma recibida se confiesa entregado el otorgante a su voluntad renuncia decir lo contrario la excepcion de la non numerata pecunia so prueba, la del recibo termino ene año y mas del caso, declarando que no vale mas y caso que mas valga de su demasia en mucha o poca suma hace gracia y donacion al comprador y sus herederos buena para mera perfecta e irrevocable intervinos con la insinuacion y renunciacion necesaria sobre que renuncia la ley del ordenamiento Real fecha en Cortes de Alcalá de Henares y demas que hablan en razon de lo que se compra y vende por mas o menos de la mitad del justo precio y el termino concedido para la rescision del contrato
